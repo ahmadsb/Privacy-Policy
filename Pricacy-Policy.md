@@ -37,7 +37,7 @@ By using our site, you consent to our web site privacy policy.
 
 # Contacting Us
 If there are any questions regarding this privacy policy you may contact us using the information below.
-email jtechplanet@gmail.cim
+email jtechplanet@gmail.com
 
 
 28-04-2022 last update
